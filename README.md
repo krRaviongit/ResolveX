@@ -1,1 +1,1 @@
-![ResolveX Banner](https://github.com/user-attachments/assets/90280a8f-53a2-426e-9b81-23ed854bc7b1)
+![ResolveX Banner](https://github.com/user-attachments/assets/c9e8cd50-e4bb-4e23-b4af-8ecc44fe9ef5)
